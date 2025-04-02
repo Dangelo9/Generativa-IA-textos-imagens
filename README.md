@@ -1,0 +1,1 @@
+# Generativa-IA-textos-imagens
